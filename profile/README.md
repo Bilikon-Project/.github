@@ -34,3 +34,8 @@ We welcome everyone who wants to build with us and help others:
 <div align="center">
   <i>Building together, growing together. 💡</i>
 </div>
+
+---
+Почему ты не отвечаешь? Ты пытаешься возвести стену между нами? 
+
+
